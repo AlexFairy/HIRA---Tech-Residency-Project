@@ -1,1 +1,1 @@
-# HIRA---Tech-Residency-Project
+# Journal Entry: UPDATES & NOTES
